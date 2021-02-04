@@ -1,0 +1,1 @@
+![Image of Cartoon Computer](https://previews.123rf.com/images/larryrains/larryrains1901/larryrains190100052/118556754-computer-mascot-with-thumbs-up-a-vector-cartoon-illustration-of-a-computer-mascot-holding-a-thumbs-u.jpg)
